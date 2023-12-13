@@ -6,13 +6,13 @@
 `>` I also go by Toppin, although just please call me Stary unless close/irl friend ![om gee!!!!](https://pixels.crd.co/assets/images/gallery56/d1bb4303.gif?v=379361a4)
 `>` Minor ; ENFP-T ; ADHD+Neurodivergent and the stupid ![starz](https://pixels.crd.co/assets/images/gallery45/2c6d0e4d.gif?v=379361a4)![dfsdffd](https://pixels.crd.co/assets/images/gallery134/f68ad51e.gif?v=379361a4)<-
 ***
-`>` HI GUYS!! Will keep this short. I have cover and cuddle discomfort, please keep your distance unless you are close!!
+`>` HI GUYS!! Will keep this short. I have cover and cuddle discomfort, please keep your distance unless you are close or you GET PERMISSION!!!
 
 `>` My main trigger is GUILT, I have a GUILT complex. Please keep that in mind!!!
 
 `>` My spelling is ASS!! Please don't make fun of it, I KNOW it is ASS!!!!
 
-`>` Booping and crowns are allowed!!
+`>` Booping and crowns are allowed!! Hiding is too, just please don't do it for a long time without asking.
 
 `>` Don't be scared of my supporter, I love people!!! __[If you are going to ask about borrowing my supporter, no. Only for friends.]__
 
