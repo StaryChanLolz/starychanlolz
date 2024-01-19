@@ -19,4 +19,4 @@
 `>` IF YOU WANT 2 LEARN MORE, [READ MY RENTRY](https://rentry.co/starychanlolz)!!!!
 
 ## thankz you guys
-![OOHHH OOHHH GET IT CAIN OOOHHH OOHHH](https://i.pinimg.com/originals/78/bb/89/78bb891dc2316b6129decc52e728e29b.gif)
+![OOHHH OOHHH GET IT CAIN OOOHHH OOHHH](https://media.tenor.com/bQgTN_4NI6YAAAAi/binding-of.gif)
