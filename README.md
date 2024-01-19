@@ -19,4 +19,4 @@
 `>` IF YOU WANT 2 LEARN MORE, [READ MY RENTRY](https://rentry.co/starychanlolz)!!!!
 
 ## thankz you guys
-![OOHHH OOHHH GET IT CAIN OOOHHH OOHHH]([https://static.wikia.nocookie.net/pizzatower/images/6/6d/Spr_technicaldifficulty1_0.png/revision/latest/scale-to-width-down/185?cb=20220802230540](https://i.pinimg.com/originals/78/bb/89/78bb891dc2316b6129decc52e728e29b.gif)https://i.pinimg.com/originals/78/bb/89/78bb891dc2316b6129decc52e728e29b.gif)
+![OOHHH OOHHH GET IT CAIN OOOHHH OOHHH](https://i.pinimg.com/originals/78/bb/89/78bb891dc2316b6129decc52e728e29b.gif)
