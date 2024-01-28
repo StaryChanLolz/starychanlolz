@@ -19,4 +19,4 @@
 `>` IF YOU WANT 2 LEARN MORE, [READ MY RENTRY](https://rentry.co/starychanlolz)!!!!
 
 ## thankz you guys
-![GET IT OOHH OHHH]([https://media.tenor.com/bQgTN_4NI6YAAAAi/binding-of.gif](https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif)https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif)
+![GET IT OOHH OHHH](https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif)
