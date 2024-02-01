@@ -14,11 +14,11 @@
 
 `>` My spelling is ASS!! Please don't make fun of it, I KNOW it is ASS!!!!
 
-`>` Booping and crowns are allowed!! Hiding is too, just please don't do it for a long time without asking.
+`>` Booping and crowns are allowed!! Hiding is too, just please don't do it for a long time without asking
 
 `>` I'm very hyperactive and bonkers, but i can also get really sad and quiet. I tend to flip between the two, so please be patient with me!!
 
-`>` I'm usually seen on the safe server, and only the safe server. if you see me all alone in a different language server, dni. i'm likely rare item hunting, and i like to be alone during these times.
+`>` I'm usually seen on the safe server, and only the safe server. if you see me all alone in a different language server, DNI. i'm likely rare item hunting, and i like to be alone during these times
 
 `>` I have BAD trust issues, if i unfriend you it's only because we don't talk; NOTHING PERSONAL I PROMISE
 
