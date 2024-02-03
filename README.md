@@ -8,9 +8,11 @@
 ***
 `>` HI GUYS!! Will keep this short. I have cover and cuddle discomfort, please keep your distance unless you are close or you GET PERMISSION!!!
 
-`>` I use tone indicators a LOT!!!!! Tone indicators are appreciated, but NOT required!!!!!
-
 `>` My main trigger is GUILT, I have a GUILT complex. Please keep that in mind!!!
+
+`>` Don't make fun of my kins or comfort characters. They are very close to me, and it makes me severely uncomfortable./srs (Looking at the people that called Tarnished Samson 'period blood wannabe' and 'edgelord', not cool./dir)
+
+`>` I use tone indicators a LOT!!!!! Tone indicators are appreciated, but NOT required!!!!!
 
 `>` My spelling is ASS!! Please don't make fun of it, I KNOW it is ASS!!!!
 
