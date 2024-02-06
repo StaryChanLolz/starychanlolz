@@ -10,6 +10,8 @@
 
 `>` My main trigger is GUILT, I have a GUILT complex. Please keep that in mind!!!
 
+`>` PLEASE DONT INT IF YOU THINK ILL JUDGE BECAUSE OF MY SUPPORTER!!!! IM NICE I SWEAR!!!!! **[if you need it for map limits though hell no, we need to talk a little more first; i don't give it out to strangers anymore.]**
+
 `>` Don't make fun of my kins or comfort characters. They are very close to me, and it makes me severely uncomfortable./srs (Looking at the people that called Tarnished Samson 'period blood wannabe' and 'edgelord', not cool./dir)
 
 `>` I use tone indicators a LOT!!!!! Tone indicators are appreciated, but NOT required!!!!!
@@ -23,8 +25,6 @@
 `>` I'm usually seen on the safe server, and only the safe server. if you see me all alone in a different language server, DNI. i'm likely rare item hunting, and i like to be alone during these times
 
 `>` I have BAD trust issues, if i unfriend you it's only because we don't talk; NOTHING PERSONAL I PROMISE
-
-`>` PLEASE DONT INT IF YOU THINK ILL JUDGE BECAUSE OF MY SUPPORTER!!!! IM NICE I SWEAR!!!!! **[if you need it for map limits though hell no, we need to talk a little more first; i don't give it out to strangers anymore.]**
 
 `>` IF YOU WANT 2 LEARN MORE, [READ MY RENTRY](https://rentry.co/starychanlolz)!!!!
 
