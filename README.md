@@ -54,7 +54,7 @@
 > `>` **ETC**; Touhou Project, Celeste, DHMIS, Dog Man/Captain Underpants, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!)
 
 ### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) KINS/COMFORTS ;
-> `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samsonhttps://bindingofisaacrebirth.fandom.com/wiki/Samson) ***;*** *HIGHKIN N COMF ;* ***THE BINDING OF ISAAC***
+> `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***;*** *HIGHKIN N COMF ;* ***THE BINDING OF ISAAC***
 
 > `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMF N HIGHKIN!!!! SUPER DUPER KIN!!!!! ;* ***SUGARY SPIRE*** 
 
