@@ -54,17 +54,17 @@
 > `>` **ETC**; Touhou Project, Celeste, DHMIS, Dog Man/Captain Underpants, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!)
 
 ### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) KINS/COMFORTS ;
-> `>` ***SAMSON ;*** *HIGHKIN N COMF ;* ***THE BINDING OF ISAAC***
+> `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samsonhttps://bindingofisaacrebirth.fandom.com/wiki/Samson) ***;*** *HIGHKIN N COMF ;* ***THE BINDING OF ISAAC***
 
-> `>` ***PIZZANO ;*** *COMF N HIGHKIN!!!! SUPER DUPER KIN!!!!! ;* ***SUGARY SPIRE*** 
+> `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMF N HIGHKIN!!!! SUPER DUPER KIN!!!!! ;* ***SUGARY SPIRE*** 
 
-> `>` ***PEPPINO ;*** *COMF N KIN ;* ***PIZZA TOWER***
+> `>` [***PEPPINO***](https://pizzatower.miraheze.org/wiki/Peppino) ***;*** *COMF N KIN ;* ***PIZZA TOWER***
 
-> `>` ***PART TIME WARRIOR RIN ;*** *COMF N KIN/COPINGLINK ;* ***MUSE DASH***
+> `>` [***PART TIME WARRIOR RIN***](https://musedash.fandom.com/wiki/Part-Time_Warrior_Rin) ***;*** *COMF N KIN/COPINGLINK ;* ***MUSE DASH***
 
-> `>` ***ISAAC ;*** *KIN/COPINGLINK N COMF ;* ***THE BINDING OF ISAAC***
+> `>` [***ISAAC***](https://bindingofisaacrebirth.fandom.com/wiki/Isaac) ***;*** *KIN/COPINGLINK N COMF ;* ***THE BINDING OF ISAAC***
 
-> `>` ***EVE ;*** *SEMIKIN N COMF ;* ***THE BINDING OF ISAAC***
+> `>` [***EVE***](https://bindingofisaacrebirth.fandom.com/wiki/Eve) ***;*** *SEMIKIN N COMF ;* ***THE BINDING OF ISAAC***
 
 ### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) NOTE !!! ; While I don't *hide* or *block* skins of my comfort characters/higher kins, they tend to make me a little uncomfortable so PLEASE keep this in mind !!!
 
@@ -76,7 +76,7 @@
 
 > `>` **EXTRA !!** ;; you can find me most commonly in the safe server by docks, usually where i reside for ponytown!!!
 
-> `>` taken by apollyon/trainrush, i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship
+> `>` taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship
 
 # `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) thankz you guys
 ![GET IT OOHH OHHH](https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif)
