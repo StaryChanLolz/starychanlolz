@@ -74,9 +74,9 @@
 
 <hr>
 
-> `>` **EXTRA !!** ;; you can find me most commonly in the safe server by docks, usually where i reside for ponytown!!!
+`>` **EXTRA !!** ;; you can find me most commonly in the safe server by docks, usually where i reside for ponytown!!!
 
-> `>` taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship
+`>` taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship
 
 # `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) thankz you guys
 ![GET IT OOHH OHHH](https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif)
