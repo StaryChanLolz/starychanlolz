@@ -53,6 +53,8 @@
 
 > `>` **ETC**; Touhou Project, Celeste, DHMIS, Dog Man/Captain Underpants, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!)
 
+![what the BALLS](https://media.discordapp.net/attachments/903364339464044575/1101870897561870366/FC7C0558-6FD4-4673-B57F-16962052BF8F.gif)
+
 <img src="https://media.discordapp.net/attachments/777930765559136296/1206091235115143228/Screenshot_2024-02-08_210231_1.png?ex=65dabefe&is=65c849fe&hm=3346436ef2a5fa3541be66b12ecb43661c9c8213371ec6d6fb9b10d421b65299&=&format=webp&quality=lossless" height=120px;>
 
 ### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) KINS/COMFORTS ;
