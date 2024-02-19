@@ -70,6 +70,8 @@
 
 > `>` [***EVE***](https://bindingofisaacrebirth.fandom.com/wiki/Eve) ***;*** *SEMIKIN N COMF ;* ***THE BINDING OF ISAAC***
 
+> `>` [***LILITH***](https://bindingofisaacrebirth.fandom.com/wiki/Lilith) ***;*** *SEMICOMF ;* ***THE BINDING OF ISAAC*** 
+
 ### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) NOTE !!! ; While I don't *hide* or *block* skins of my comfort characters/higher kins, they tend to make me a little uncomfortable so PLEASE keep this in mind !!!
 
 ![what the BALLS](https://media.discordapp.net/attachments/903364339464044575/1101870897561870366/FC7C0558-6FD4-4673-B57F-16962052BF8F.gif) 
