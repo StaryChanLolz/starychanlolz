@@ -40,6 +40,7 @@
 > `>` ***Muse Dash*** (I LOOOVEEE muse dash, LOVELOVELOVE. I will go insane if you mention this game/hj) ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` **Pizza Tower/Sugary Spire** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
+
 > `>` ***The Binding of Isaac***
 
 > `>` **Newgrounds** (including newgrounds fandoms!!! ask away, i know quite a lot of newgrounds series :33) ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
