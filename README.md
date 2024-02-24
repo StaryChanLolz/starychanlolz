@@ -80,7 +80,7 @@
 
 `>` **EXTRA !!** ;; you can find me most commonly in the safe server by docks, usually where i reside for ponytown!!!
 
-`>` taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship
+`>` <img src="https://cdn.discordapp.com/attachments/777930765559136296/1210737681978363904/Character_Tainted_Apollyon_icon.png?ex=65eba655&is=65d93155&hm=589955a8d523fad8a996d536ff7a36b16b7152e0be222f09a0846f893b70ded6&" height=20px><img src="https://media.discordapp.net/attachments/777930765559136296/1210741135203631184/Character_Apollyon_icon.png?ex=65eba98d&is=65d9348d&hm=f4f5cc13657997d79585abc31aefbcbdcff46f8eb1a5793bef2f2355fc5065db&=&format=webp&quality=lossless" height=20px> taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship (it is apollyon in the real/nsrs /pos)
 
 # `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) thankz you guys
 <a href="https://www.youtube.com/watch?v=gPDjdR3WoaA"><img src="https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif"></a>
