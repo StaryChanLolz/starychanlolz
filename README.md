@@ -23,6 +23,8 @@
 
 >`>` Booping and crowns are allowed!! Hiding is too, just please don't do it for a long time without asking
 
+>`>` Please do not call me things like 'pookie/pooks' or 'bbg', etc. it makes me VERY uncomfortable!
+
 >`>` I'm very hyperactive and bonkers, but I can also get really sad and quiet. I tend to flip between the two, so please be patient with me!!
 
 >`>` I'm usually seen on the safe server, and only the safe server. If you see me all alone in a different language server, DNI. i'm likely rare item hunting, and i like to be alone during these times
