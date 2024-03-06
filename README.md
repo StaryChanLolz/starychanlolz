@@ -39,11 +39,11 @@
 ### <img src="https://media.discordapp.net/attachments/777930765559136296/1210278728035340348/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3737373933303736353535393133363239362f313231303237343136313830313432393033322f4368617261637465725f53616d736f6e5f69636f6e2e706e6.png?ex=65e9fae6&is=65d785e6&hm=6ae3ef406b023fd3cce1ae59bf29867fece86fc522c3f6972e8fc428b4e9f1c0&" height=25px> `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) **INTERESTS/FANDOMS ;**
 > **`[[`** **Special interests r bolded** , *Current hyperfixations are italicised* **`]]`**
 
+> `>` ***The Binding of Isaac (CURRENT HYPERFIXATION!!! IT'S LIKE; KIIIINIDA IMPORTANT!!)*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
+
 > `>` ***Muse Dash*** (I LOOOVEEE muse dash, LOVELOVELOVE. I will go insane if you mention this game/hj) ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` **Pizza Tower/Sugary Spire** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
-
-> `>` ***The Binding of Isaac***
 
 > `>` **Newgrounds** (including newgrounds fandoms!!! ask away, i know quite a lot of newgrounds series :33) ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
@@ -51,7 +51,9 @@
 
 > `>` Antonball Deluxe/Antonblast
 
-> `>` **ETC**; Touhou Project, Celeste, DHMIS, Dog Man/Captain Underpants, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!)
+> `>` Persona 5
+
+> `>` **ETC**; Touhou Project, Celeste, DHMIS, Needy Streamer Overload, Dog Man/Captain Underpants, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!)
 
 ![what the BALLS](https://media.discordapp.net/attachments/903364339464044575/1101870897561870366/FC7C0558-6FD4-4673-B57F-16962052BF8F.gif)
 
@@ -60,11 +62,11 @@
 ### <img src="https://media.discordapp.net/attachments/777930765559136296/1210278728383598623/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3737373933303736353535393133363239362f313231303237343136323031353437373932302f4368617261637465725f5461696e7465645f53616d736f6e5.png?ex=65e9fae6&is=65d785e6&hm=eade66c282059d89c287b7893c83297706183139500e68a1b09b16a871253ec3&" height=25px> `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) KINS/COMFORTS ;
 > `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***;*** *HIGHKIN N COMF ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
+> `>` [***PART TIME WARRIOR RIN***](https://musedash.fandom.com/wiki/Part-Time_Warrior_Rin) ***;*** *COMF N KIN/COPINGLINK (QUESTIONING FICTKIN???) ;* ***MUSE DASH*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) 
+
 > `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMF N HIGHKIN!!!! SUPER DUPER KIN!!!!! ;* ***SUGARY SPIRE*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` [***PEPPINO***](https://pizzatower.miraheze.org/wiki/Peppino) ***;*** *COMF N KIN ;* ***PIZZA TOWER***
-
-> `>` [***PART TIME WARRIOR RIN***](https://musedash.fandom.com/wiki/Part-Time_Warrior_Rin) ***;*** *COMF N KIN/COPINGLINK ;* ***MUSE DASH*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` [***ISAAC***](https://bindingofisaacrebirth.fandom.com/wiki/Isaac) ***;*** *KIN N COMF ;* ***THE BINDING OF ISAAC***
 
