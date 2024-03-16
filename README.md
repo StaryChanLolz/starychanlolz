@@ -1,4 +1,4 @@
-# <img src="https://media.discordapp.net/attachments/777930765559136296/1210278728035340348/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3737373933303736353535393133363239362f313231303237343136313830313432393033322f4368617261637465725f53616d736f6e5f69636f6e2e706e6.png?ex=65e9fae6&is=65d785e6&hm=6ae3ef406b023fd3cce1ae59bf29867fece86fc522c3f6972e8fc428b4e9f1c0&" height=35px> `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) STARYCHANLOLZ 
+# <span style="color:purple;"> `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) STARYCHANLOLZ </span>
 ![bib](https://i.postimg.cc/rwvysshd/bisexual-3-stripes-20-px.png)![nonb](https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png) `>` STARY - ANY PRONOUNS !! ![music!!!](https://pixels.crd.co/assets/images/gallery07/b4a91de4.gif?v=1987e5e0)
 `>` I GO BY STARY!!! MY PERFERRED NAME IS STARY!!!! its stary not starry that was on purpose, if you spell it starry i will THROW YOU INTO THE GULAG I SWEAR TO GOD/HVYJ ![om gee!!!!](https://pixels.crd.co/assets/images/gallery56/d1bb4303.gif?v=379361a4)
 `>` ENFP-T ; ADHD+Neurodivergent and the stupid ![starz](https://pixels.crd.co/assets/images/gallery45/2c6d0e4d.gif?v=379361a4)![dfsdffd](https://pixels.crd.co/assets/images/gallery134/f68ad51e.gif?v=379361a4)
@@ -36,7 +36,7 @@
 <img src="https://foursouls.com/wp-content/uploads/2022/01/r-blood_lust.png" height=300px;>
 
 # `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) **INTERESTS**
-### <img src="https://media.discordapp.net/attachments/777930765559136296/1210278728035340348/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3737373933303736353535393133363239362f313231303237343136313830313432393033322f4368617261637465725f53616d736f6e5f69636f6e2e706e6.png?ex=65e9fae6&is=65d785e6&hm=6ae3ef406b023fd3cce1ae59bf29867fece86fc522c3f6972e8fc428b4e9f1c0&" height=25px> `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) **INTERESTS/FANDOMS ;**
+### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) **INTERESTS/FANDOMS ;**
 > **`[[`** **Special interests r bolded** , *Current hyperfixations are italicised* **`]]`**
 
 > `>` ***The Binding of Isaac (CURRENT HYPERFIXATION!!! IT'S LIKE; KIIIINIDA IMPORTANT!!)*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
@@ -57,9 +57,7 @@
 
 ![what the BALLS](https://media.discordapp.net/attachments/903364339464044575/1101870897561870366/FC7C0558-6FD4-4673-B57F-16962052BF8F.gif)
 
-<img src="https://media.discordapp.net/attachments/777930765559136296/1206091235115143228/Screenshot_2024-02-08_210231_1.png?ex=65dabefe&is=65c849fe&hm=3346436ef2a5fa3541be66b12ecb43661c9c8213371ec6d6fb9b10d421b65299&=&format=webp&quality=lossless" height=120px;>
-
-### <img src="https://media.discordapp.net/attachments/777930765559136296/1210278728383598623/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f3737373933303736353535393133363239362f313231303237343136323031353437373932302f4368617261637465725f5461696e7465645f53616d736f6e5.png?ex=65e9fae6&is=65d785e6&hm=eade66c282059d89c287b7893c83297706183139500e68a1b09b16a871253ec3&" height=25px> `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) KINS/COMFORTS ;
+### `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) KINS/COMFORTS ;
 > `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***;*** *HIGHKIN N COMF ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` [***PART TIME WARRIOR RIN***](https://musedash.fandom.com/wiki/Part-Time_Warrior_Rin) ***;*** *COMF N KIN/COPINGLINK (QUESTIONING FICTKIN???) ;* ***MUSE DASH*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) 
@@ -84,7 +82,7 @@
 
 `>` **EXTRA !!** ;; you can find me most commonly in the safe server by docks, usually where i reside for ponytown!!!
 
-`>` <img src="https://cdn.discordapp.com/attachments/777930765559136296/1210737681978363904/Character_Tainted_Apollyon_icon.png?ex=65eba655&is=65d93155&hm=589955a8d523fad8a996d536ff7a36b16b7152e0be222f09a0846f893b70ded6&" height=20px><img src="https://media.discordapp.net/attachments/777930765559136296/1210741135203631184/Character_Apollyon_icon.png?ex=65eba98d&is=65d9348d&hm=f4f5cc13657997d79585abc31aefbcbdcff46f8eb1a5793bef2f2355fc5065db&=&format=webp&quality=lossless" height=20px> taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship (it is apollyon in the real/nsrs /pos)
+`>` taken by apollyon/trainrush, he is SO awesome i LOVE you SO MUCH(/p) we r in such an awesome <a href="https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.">qpr</a> relationship (it is apollyon in the real/nsrs /pos)
 
 # `>` ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) thankz you guys
 <a href="https://www.youtube.com/watch?v=gPDjdR3WoaA"><img src="https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif"></a>
