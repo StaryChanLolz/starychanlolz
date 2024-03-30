@@ -58,7 +58,7 @@
 
 ![](https://caterpie.crd.co/assets/images/gallery15/f59aca00.gif?v=f7b7a140) 
 
-`> "Stop that, our writers ran away!"`
+`> " Her ability is the greatest skill in Muse Dash history, the power to defy the laws of physics! Rotate the device 90 degrees counter-clockwise and turn it into a vertical rhythm game! "`
 >`>` No DNI! Just NO BUTTCHEEKS!!!/j (just block freely, ,,,plus [general dni criteria](https://basicdnicriteria.carrd.co/))
 
 >`>` I use tone indicators a LOT!!!!! Tone indicators are appreciated, but NOT required!!!!!
