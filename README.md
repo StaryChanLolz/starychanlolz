@@ -82,7 +82,7 @@
 
 >`>` COMMONLY FOUND ON THE SAFE SERVER!!! If I'm on the safe server DNI, It's either for private reasons or I'm rare item hunting and I DON'T wanna talk to anyone
 
->`>` Apollyoooon hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos (Apollyon is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat it SO well RN)
+>`>` Apollyoooon hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos (Apollyon is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat them SO well RN)
 ***
 <img src="https://media.discordapp.net/attachments/777930765559136296/1223453066842476564/Untitled91_20240329200048.png?ex=6619e875&is=66077375&hm=96158e0b9aada411b6d9c9b3114acc754e7fc88347e5cfaa7537dbca86467fe1&=&format=webp&quality=lossless" height=400px;>
 
