@@ -11,6 +11,8 @@
 
 >`>` I DON'T TAKE WELL TO TEASING!!! It's okay to, just know that if we aren't close I might have a negative reaction!! I also get put off easily w **/lh**, so please be careful with that too
 
+>`>` DO. NOT. COPY. ME. TALKING TO YOU "Stinky Red Onion😁💫" YOU COPIED MY SAMSON AND I WILL FUCKING **FIND** YOU (pizzare too I KNOW WHAT YOU DID)
+
 >`>` Don't make fun of my kins or comfort characters. They are very close to me, and it makes me severely uncomfortable./srs (Looking at the people that called Tarnished Samson 'period blood wannabe' and 'edgelord', not cool./dir) 
 
 >`>` My spelling is ASS!! Please don't make fun of it, I KNOW it is ASS!!!!
