@@ -51,7 +51,7 @@
 
 > `>` **ETC**; Persona 5, Touhou Project, Celeste, Scott Pilgrim (All adaptions), DHMIS, Needy Streamer Overload, Dog Man/Captain Underpants, DJMAX, Kindergarten, OMORI, Fancy Pants Adventures, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!) 
 ***
-<img src="https://raw.githubusercontent.com/StaryChanLolz/starychanlolzupdate/main/Killer_instinct.webp?token=GHSAT0AAAAAACOB6LHPAFJIZ63EGNFVL5ISZSZOY3A" height=150px;> 
+<img src="https://github.com/StaryChanLolz/starychanlolzupdate/blob/main/Killer_instinct.png?raw=true" height=150px;> 
 
 ***
 
@@ -94,7 +94,7 @@
 
 >`>` Apollyoooon hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos (Apollyon is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat them SO well RN)
 ***
-<img src="https://raw.githubusercontent.com/StaryChanLolz/starychanlolzupdate/main/Untitled91_20240329200048.webp?token=GHSAT0AAAAAACOB6LHP5HXUR6UPFAEKJJ2QZSZOZPQ" height=400px;>
+<img src="https://github.com/StaryChanLolz/starychanlolzupdate/blob/main/Untitled91_20240329200048.png?raw=true" height=400px;>
 
 ## ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) `>` love you guys keep doin what youre doin
 <a href="https://www.youtube.com/watch?v=gPDjdR3WoaA"><img src="https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif"></a>
