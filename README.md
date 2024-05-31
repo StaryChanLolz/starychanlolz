@@ -32,7 +32,7 @@
 
 ***
 
-## <img src="https://cdn.discordapp.com/attachments/777930765559136296/1223452325616816138/Character_Samson_icon.png?ex=6619e7c5&is=660772c5&hm=d2536d174e97c89630e184a05e24d7efa433bd8dabecdf03d2be4c6e1b5c142a&" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> LIKES/FANDOMS !! ;
+## <img src="https://github.com/StaryChanLolz/starychanlolzupdate/blob/main/Character_Samson_icon.png?raw=true" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> LIKES/FANDOMS !! ;
 > **`[[`** **Special interests r bolded** , *Current hyperfixations are italicised* **`]]`**
 
 > `>` ***[The Binding of Isaac](https://bindingofisaacrebirth.fandom.com/wiki/Binding_of_Isaac:_Rebirth_Wiki) (CURRENT HYPERFIXATION!!! IT'S LIKE; KIIIINIDA IMPORTANT!!)*** 
@@ -51,9 +51,11 @@
 
 > `>` **ETC**; Persona 5, Touhou Project, Celeste, Scott Pilgrim (All adaptions), DHMIS, Needy Streamer Overload, Dog Man/Captain Underpants, DJMAX, Kindergarten, OMORI, Fancy Pants Adventures, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!) 
 ***
-<img src="https://media.discordapp.net/attachments/777930765559136296/1223528956574306354/20240316_115234.png?ex=661a2f23&is=6607ba23&hm=f3f0dccd3874c59b85150379841fd7ec7f5a9065ff993d715e32a7390db7ca7c&=&format=webp&quality=lossless" height=150px;> <img src="https://media.discordapp.net/attachments/777930765559136296/1223528955878051931/20240316_131212.png?ex=661a2f23&is=6607ba23&hm=5e497e4ab782979379cb7fcbaa97dd1c8c19c6776467c6ee5a1068c5789bde81&=&format=webp&quality=lossless" height=150px;>
+<img src="https://raw.githubusercontent.com/StaryChanLolz/starychanlolzupdate/main/Killer_instinct.webp?token=GHSAT0AAAAAACOB6LHO56PX2IUFMUH6NCSUZSZHMMA" height=150px;> 
+
 ***
-## <img src="https://cdn.discordapp.com/attachments/777930765559136296/1223452325285199913/Character_Tainted_Samson_icon.png?ex=6619e7c4&is=660772c4&hm=bd0eec4053a9a30008781b9bd7e929d26b2141d4ddd307d16b460193b523cfd8&" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> KINS N FAVES !! ;
+
+## <img src="https://github.com/StaryChanLolz/starychanlolzupdate/blob/main/Character_Tainted_Samson_icon.png?raw=true" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> KINS N FAVES !! ;
 > `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***[+[TAINTED](https://bindingofisaacrebirth.fandom.com/wiki/Tainted_Samson)/[TARNISHED](https://tboiepiphany.wiki.gg/wiki/Tarnished_Samson)]*** ***;*** *HIGHKIN/COMFORT CHARACTER ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) 
 
 > `>` [***PART TIME WARRIOR RIN***](https://musedash.fandom.com/wiki/Part-Time_Warrior_Rin) ***;*** *COMFORT CHARACTER/KIN+COPINGLINK ;* ***MUSE DASH*** 
@@ -92,7 +94,7 @@
 
 >`>` Apollyoooon hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos (Apollyon is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat them SO well RN)
 ***
-<img src="https://media.discordapp.net/attachments/777930765559136296/1223453066842476564/Untitled91_20240329200048.png?ex=6619e875&is=66077375&hm=96158e0b9aada411b6d9c9b3114acc754e7fc88347e5cfaa7537dbca86467fe1&=&format=webp&quality=lossless" height=400px;>
+<img src="https://raw.githubusercontent.com/StaryChanLolz/starychanlolzupdate/main/Untitled91_20240329200048.webp?token=GHSAT0AAAAAACOB6LHPGBHOKUIAQ5LSFA3IZSZG7FQ" height=400px;>
 
 ## ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) `>` love you guys keep doin what youre doin
 <a href="https://www.youtube.com/watch?v=gPDjdR3WoaA"><img src="https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif"></a>
