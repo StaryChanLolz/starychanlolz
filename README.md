@@ -56,11 +56,21 @@
 ***
 
 ## <img src="https://github.com/StaryChanLolz/starychanlolzupdate/blob/main/Character_Tainted_Samson_icon.png?raw=true" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> KINS N FAVES !! ;
-> `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***[+[TAINTED](https://bindingofisaacrebirth.fandom.com/wiki/Tainted_Samson)/[TARNISHED](https://tboiepiphany.wiki.gg/wiki/Tarnished_Samson)]*** ***;*** *HIGHKIN/COMFORT CHARACTER ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) 
+> `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***[+[TAINTED](https://bindingofisaacrebirth.fandom.com/wiki/Tainted_Samson)/[TARNISHED](https://tboiepiphany.wiki.gg/wiki/Tarnished_Samson)]*** ***;*** *HIGHKIN/COMFORT CHARACTER ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
+
+> `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMFORT CHARACTER/HIGHKIN ;* ***SUGARY SPIRE***
 
 > `>` [***PART TIME WARRIOR RIN***](https://musedash.fandom.com/wiki/Part-Time_Warrior_Rin) ***;*** *COMFORT CHARACTER/KIN+COPINGLINK ;* ***MUSE DASH*** 
 
-> `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMFORT CHARACTER/HIGHKIN ;* ***SUGARY SPIRE***
+> `>` [***PICONJO***](https://villains.fandom.com/wiki/Piconjo) ***;*** *PAST MAJOR COMFORT CHARACTER ;* ***NEWGROUNDS RUMBLE***
+
+> `>` [***CONVICT***](https://everythingbyeveryone.fandom.com/wiki/Convict) ***;*** *PAST COMFORT CHARACTER ;* ***NEWGROUNDS RUMBLE***
+
+> `>` [***STEVE***](https://tankmen.fandom.com/wiki/Steve) ***;*** *KIN+COMFORT CHARACTER ;* ***TANKMEN***
+
+> `>` [***PICO***](https://pico.fandom.com/wiki/Pico) ***;*** *COMFORT CHARACTER ;* ***PICO'S SCHOOL***
+
+> `>` [***BOYFRIEND***](https://fridaynightfunkin.fandom.com/wiki/Boyfriend) ***;*** *KIN ;* ***FRIDAY NIGHT FUNKIN'***
 
 > `>` [***ISAAC***](https://bindingofisaacrebirth.fandom.com/wiki/Isaac) ***[+[TAINTED](https://bindingofisaacrebirth.fandom.com/wiki/Tainted_Isaac)/[TARNISHED](https://tboiepiphany.wiki.gg/wiki/Tarnished_Isaac)]*** ***;*** *KIN/COMFORT CHARACTER+COPINGLINK ;* ***THE BINDING OF ISAAC***
 
