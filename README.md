@@ -68,7 +68,7 @@
 
 > `>` [***STEVE***](https://tankmen.fandom.com/wiki/Steve) ***;*** *KIN+COMFORT CHARACTER ;* ***TANKMEN***
 
-> `>` [***PICO***](https://pico.fandom.com/wiki/Pico) ***;*** *COMFORT CHARACTER ;* ***PICO'S SCHOOL***
+> `>` [***PICO***](https://pico.fandom.com/wiki/Pico) ***;*** *PAST COMFORT CHARACTER ;* ***PICO'S SCHOOL***
 
 > `>` [***BOYFRIEND***](https://fridaynightfunkin.fandom.com/wiki/Boyfriend) ***;*** *KIN ;* ***FRIDAY NIGHT FUNKIN'***
 
