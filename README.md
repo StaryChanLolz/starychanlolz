@@ -1,13 +1,14 @@
 # <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=30px;> `>` STARYCHANLOLZ !!
 ![](https://caterpie.crd.co/assets/images/gallery15/f59aca00.gif?v=f7b7a140) 
-
 `> " How can you say "I love you", when you won't confide in me...? "`
 
 ***
 
 >![bib](https://i.postimg.cc/rwvysshd/bisexual-3-stripes-20-px.png)![nonb](https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png) `>` STARY (Not Starry I will EXILE YOU/HVYJHVYJ) `;` ANY PRONOUNS `;` (SUSPECTED) NEURODIVERGENT AND CLINICALLY STUPID `;` TAKEN<33 (APOLLYON I LOVE YOU SO MUCH GRIPS YOU/VNSRS) ![starz](https://pixels.crd.co/assets/images/gallery45/2c6d0e4d.gif?v=379361a4)![dfsdffd](https://pixels.crd.co/assets/images/gallery134/f68ad51e.gif?v=379361a4)
 # <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=30px;> `>` BYI !!
->`>` I HAVE COVER/CUDDLE DISCOMF!!! ASK TO CUDDLE WITH ME OR COVER ME UNLESS YOU ARE CLOSE, YOU KNOW WHO YOU ARE!!!! (hiding for short periods is alright though go wild)
+>`>` I HAVE COVER/CUDDLE DISCOMF!!! ASK TO CUDDLE WITH ME OR COVER ME UNLESS YOU ARE CLOSE, YOU KNOW WHO YOU ARE!!!!
+
+>`>` I HAVE [**RSD**](https://my.clevelandclinic.org/health/diseases/24099-rejection-sensitive-dysphoria-rsd). I DON'T TAKE TOO WELL TO CRITICISM. PLEASE DO NOT GIVE ME UNWARRANTED CRITICISM!
 
 >`>` I DON'T TAKE WELL TO TEASING!!! It's okay to, just know that if we aren't close I might have a negative reaction!! I also get put off easily w **/lh**, so please be careful with that too
 
@@ -49,7 +50,7 @@
 
 > `>` [A Hat in Time](https://ahatintime.fandom.com/wiki/A_Hat_in_Time_Wiki) 
 
-> `>` **ETC**; Persona 5, Touhou Project, Celeste, Scott Pilgrim (All adaptions), DHMIS, Needy Streamer Overload, Dog Man/Captain Underpants, DJMAX, Kindergarten, OMORI, Fancy Pants Adventures, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!) 
+> `>` **ETC**; 60 Seconds, Persona 5, Touhou Project, Celeste, Scott Pilgrim (All adaptions), DHMIS, Needy Streamer Overload, Dog Man/Captain Underpants, DJMAX, Kindergarten, OMORI, Fancy Pants Adventures, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!) 
 ***
 <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Killer_instinct%20(1).png?raw=true" height=150px;> 
 
