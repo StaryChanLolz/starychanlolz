@@ -1,11 +1,11 @@
-# <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=30px;> `>` STARYCHANLOLZ !!
+# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` STARYCHANLOLZ !!
 ![](https://caterpie.crd.co/assets/images/gallery15/f59aca00.gif?v=f7b7a140) 
 `> " How can you say "I love you", when you won't confide in me...? "`
 
 ***
 
 >![bib](https://i.postimg.cc/rwvysshd/bisexual-3-stripes-20-px.png)![nonb](https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png) `>` STARY (Not Starry I will EXILE YOU/HVYJHVYJ) `;` ANY PRONOUNS `;` (SUSPECTED) NEURODIVERGENT AND CLINICALLY STUPID `;` TAKEN<33 (APOLLYON I LOVE YOU SO MUCH GRIPS YOU/VNSRS) ![starz](https://pixels.crd.co/assets/images/gallery45/2c6d0e4d.gif?v=379361a4)![dfsdffd](https://pixels.crd.co/assets/images/gallery134/f68ad51e.gif?v=379361a4)
-# <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=30px;> `>` BYI !!
+# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` BYI !!
 >`>` I HAVE COVER/CUDDLE DISCOMF!!! ASK TO CUDDLE WITH ME OR COVER ME UNLESS YOU ARE CLOSE, YOU KNOW WHO YOU ARE!!!!
 
 >`>` I HAVE [**RSD**](https://my.clevelandclinic.org/health/diseases/24099-rejection-sensitive-dysphoria-rsd). I DON'T TAKE TOO WELL TO CRITICISM. PLEASE DO NOT GIVE ME UNWARRANTED CRITICISM!
@@ -24,16 +24,16 @@
 
 >`>` I'm very hyperactive and bonkers, but I can also get really sad and quiet. I tend to flip between the two, so please be patient with me!!
 ***
-<img src="https://camo.githubusercontent.com/40a1044497eabed2ab659db691123589fe24981033d565c811b9e1800e3ce9be/68747470733a2f2f666f7572736f756c732e636f6d2f77702d636f6e74656e742f75706c6f6164732f323032322f30312f722d73616d736f6e735f626c657373696e672e706e67" height=300px;>
+<img src="https://github.com/user-attachments/assets/f0ef9939-319c-4bff-8c45-31b08cf2aa07" height=300px;>
 
 ***
 
-# <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=30px;> `>` INTERESTS !!
+# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` INTERESTS !!
 `> " Come on PeroPero, being poor is not the excuse to make me look like this! "`
 
 ***
 
-## <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Character_Samson_icon%20(1).png?raw=true" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> LIKES/FANDOMS !! ;
+## <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Character_Samson_icon%20(1).png?raw=true" height=20px;> <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=18px;> LIKES/FANDOMS !! ;
 > **`[[`** **Special interests r bolded** , *Current hyperfixations are italicised* **`]]`**
 
 > `>` ***[The Binding of Isaac](https://bindingofisaacrebirth.fandom.com/wiki/Binding_of_Isaac:_Rebirth_Wiki) (CURRENT HYPERFIXATION!!! IT'S LIKE; KIIIINIDA IMPORTANT!!)*** 
@@ -56,7 +56,7 @@
 
 ***
 
-## <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Character_Tainted_Samson_icon%20(1).png?raw=true" height=20px;> `>` <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=18px;> KINS N FAVES !! ;
+## <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Character_Tainted_Samson_icon%20(1).png?raw=true" height=20px;> `>` <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=18px;> KINS N FAVES !! ;
 > `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***[+[TAINTED](https://bindingofisaacrebirth.fandom.com/wiki/Tainted_Samson)/[TARNISHED](https://tboiepiphany.wiki.gg/wiki/Tarnished_Samson)]*** ***;*** *HIGHKIN/COMFORT CHARACTER ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMFORT CHARACTER/HIGHKIN ;* ***SUGARY SPIRE***
@@ -83,10 +83,9 @@
 
 ***
 
-# <img src="https://camo.githubusercontent.com/7611372d3d81d1f60af4b2421eff66736fee558cad5a2a8c91cb0a86c6d0c7bd/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727933342f37666636663637642e6769663f763d6233353534383232" height=30px;> `>` OTHER !!
+# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` OTHER !!
 
 ![](https://caterpie.crd.co/assets/images/gallery15/f59aca00.gif?v=f7b7a140) 
-
 `> " Her ability is the greatest skill in Muse Dash history, the power to defy the laws of physics! Rotate the device 90 degrees counter-clockwise and turn it into a vertical rhythm game! "`
 
 ***
@@ -107,5 +106,5 @@
 ***
 <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Untitled91_20240329200048%20(1).png?raw=true" height=400px;>
 
-## ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822) `>` love you guys keep doin what youre doin
+## <img src="https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822" height=24px;> `>` love you guys keep doin what youre doin
 <a href="https://www.youtube.com/watch?v=gPDjdR3WoaA"><img src="https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif"></a>
