@@ -102,6 +102,6 @@
 
 >`>` COMMONLY FOUND ON THE SAFE SERVER!!! If I'm on the safe server DNI, It's either for private reasons or I'm rare item hunting and I DON'T wanna talk to anyone
 
->`>` Judaaahhh hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos (Judah is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat them SO well RN)
+>`>` [Judaaahhh](https://www.patreon.com/c/trainrush/about) hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos ([Judah](https://www.patreon.com/c/trainrush/about) is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat them SO well RN)
 ***
 <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/trsamson_unlock.png?raw=true" height=400px;>
