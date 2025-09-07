@@ -56,6 +56,8 @@
 
 > <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star2.gif?raw=true"> `>` Cookie run
 
+> <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star3.gif?raw=true"> `>` Needy Streamer Overload
+
 >> Others: OMORI, Don't Hug Me I'm Scared, Scott Pilgrim, Super Meat Boy, Madoka Magica, Pop Team Epic, Touhou Project, Dog Man/Captain Underpants, 60 Seconds, Antonball/Antonblast, more probably
 
 ***
@@ -70,6 +72,8 @@
 
 
 > <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star3.gif?raw=true"> `>` Capsaicin Cookie : ![Cookie Run: Kingdom](https://cookierunkingdom.fandom.com/wiki/Capsaicin_Cookie) : comfort character, coping link
+
+> <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star3.gif?raw=true"> `>` Crushed Pepper Cookie : ![Cookie Run: Tower of Adventures](https://cookieruntoa.fandom.com/wiki/Crushed_Pepper_Cookie) : comfort Character
 
 > <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star2.gif?raw=true"> `>` Samson : ![The Binding of Isaac](https://bindingofisaacrebirth.fandom.com/wiki/Samson) (+ Epiphany mod) : comfort character, coping link
 
