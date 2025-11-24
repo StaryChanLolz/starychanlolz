@@ -32,6 +32,7 @@
 > <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star2.gif?raw=true"> `>` if i unfriend you for no reason it's not personal, i just don't keep around people i don't talk to much <br>
 >> this usually goes for people i've roleplayed with once and never again
 
+> <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star3.gif?raw=true"> `>` i make lots of poop and dookie and evil poop and potty humor jokes
 ***
 
 <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/capgif.gif?raw=true">
