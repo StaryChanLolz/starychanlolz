@@ -81,5 +81,4 @@
 >
 > <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star.gif?raw=true" height:20px> `>` i usually hang out around docks on safe server 1, if im on a non-english server then DNI!!!!!
 ***
-<p align=center><img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star.gif?raw=true" height=20px> <a href="https://rentry.co/starychanlolz_new">rentry</a> :: <a href="https://pronouns.cc/@StaryChanLolz">pronouns</a> :: <a href="https://www.roblox.com/users/355652225/profile">roblox</a> <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/star.gif?raw=true" height=20px></p>
 <p align=center><img src="https://static.wikia.nocookie.net/the-robot-32/images/4/43/TempoRobot32Demo.gif/revision/latest?cb=20260318011341" height=200px></p>
