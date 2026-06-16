@@ -1,8 +1,6 @@
 > [!IMPORTANT]
 > ### **TLDR ::** ask to c+h , neurodivergent , PLEASE be nice to me!!!!!
 >
-> ***[I'M THE HOST OF THE HALCYON INSTITUTION!! 13+ LAB RP!!](https://discord.gg/GgnRHNGaW2)***
->
 > > ##### 🟢 = int!
 > >
 > > ##### 🌙 = VERY likely offtab and won't respond
